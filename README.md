@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DavoodShah
+- 👀 I’m interested in networking.
+- 🌱 I’m currently learning how to use Github to find the top talents.
+- 💞️ I’m looking to collaborate on networking.
+- 📫 You can contact me on Davood.Shah@panin.co.za
